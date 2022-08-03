@@ -1,4 +1,4 @@
-# sobre mium 
+# sobre mim
 -eu sou a jujubeatriz 
 - meu email de contato é: julia.beatriz.ferreira@escola.pr.gov.br
 
