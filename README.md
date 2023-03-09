@@ -6,6 +6,6 @@
  
  -gosto de cozinhar             
 
- -🌱 amo animais e gosto de dormir   
+ - amo animais e gosto de dormir   
 
  -💞️ segue meu insta: ch3rry_juju
